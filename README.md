@@ -6,4 +6,4 @@ be so deeply focused and willing myself to concentrate that I am actually puttin
 I also discovered that
 I have a sense of protection around my life now that I wasn't aware I so easily gave away in the past.
 I do know that I feel and sense others thoughts- but for what seems like the first time I actively can block those out
-which conveys a far deeper ability to share. I only hope I will maintain my sense of purpose as things move forward.
+which conveys a far deeper ability to share of myself. I know I will maintain my sense of purpose as things move forward.
